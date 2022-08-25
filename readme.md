@@ -1,0 +1,1 @@
+hai, ini merupakan catatan pertama di komputer 1
